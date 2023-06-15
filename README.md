@@ -1,4 +1,5 @@
-![Github](https://github.com/HackWithSumit/HackWithSumit/assets/120317751/2a5afb24-838a-448d-94b0-bc77ef6befb6)
+
+![GitHub](https://github.com/HackWithSumit/HackWithSumit/assets/120317751/50cadf39-b597-4486-8e87-0d5da77d44f5)
 
 
 
