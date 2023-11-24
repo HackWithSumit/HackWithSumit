@@ -1,4 +1,4 @@
-![HackWithSumit Repacked (1)](https://github.com/HackWithSumit/HackWithSumit/assets/120317751/3c6d86e2-909e-4301-b9bc-04c696bada52)
+![Hack](https://github.com/HackWithSumit/HackWithSumit/assets/120317751/4377db89-db36-48ee-b8cc-a3aa1e6d7020)
 
 
 
